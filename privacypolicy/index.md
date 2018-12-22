@@ -57,4 +57,4 @@ We may update our Privacy Policy from time to time. Thus, you are advised to rev
 
 If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us.
 
-[CoffeeOnsen Company](https://www.coffeeonsen.com)
+[CoffeeOnsen Company](https://www.coffeeonsen.com/support)
